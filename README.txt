@@ -1,0 +1,1 @@
+este proyecto esta a medias todavia no jodan con que hay bugs
